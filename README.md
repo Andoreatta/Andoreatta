@@ -1,1 +1,1 @@
-Networking student & Security hobbyst
+Programmer, SysAdmin & Information Security Enthusiast
